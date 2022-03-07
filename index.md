@@ -17,7 +17,7 @@ Now it has started to affect me. Like on Friday, I overreacted and became ultra 
 
 You need someone cool. Who can go out with you on random weekends to Chicago and doesn’t care about the ticket prices, who is good at badminton, who knows driving, who knows swimming, who knows names of more than one drink, who loves donuts and hot chocolate, who loves (and knows) cousins other than Indian, and who is interesting and funny even when he’s not drunk.
 
-You are a pure, kind, loving, caring, and the most energetic, cheerful, empathetic, and intelligent girl I have come across. I’ll not even going to ask you about me because, you know what, it doesn’t matter. I hope you’ll find someone above (or you already have someone) because that just seems correct. I am maybe experiencing this because you are the first one, ever. Never had a serious crush till now. I was just too shy to interact with girls in undergrad and had WFH after that :)
+You are a pure, kind, loving, caring, and the most energetic, cheerful, empathetic, and intelligent girl I have come across. I’ll not even going to ask you about me because, you know what, it doesn’t matter. I hope you’ll find someone like above (or you already have someone) because that just seems correct. I am maybe experiencing this because you are the first one, ever. Never had a serious crush till now. I was just too shy to interact with girls in undergrad and had WFH after that :)
 
 But thank you. I mean it. You changed my life. I learned that life is more than weekly research updates and applying to a Ph.D. program. Because of you, I went to Miami (the trip of my life thus far), started posting my little joys on Instagram, etc, etc. I think I even got my internship because of you, lol.
 
