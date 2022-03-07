@@ -1,0 +1,27 @@
+---
+layout:     page
+title:      
+permalink:  /
+---
+Hello,
+
+I think I suck at communicating my feelings verbally, hence writing this. Tl;dr: I feel deeply embarrassed, and you are at no fault for this :)
+
+Since you randomly messaged me about Qatar's flight last year in July, I have a huge huge crush on you. That day, I opened your WhatsApp profile (the one with your family?), and I haven’t been the same since then. It just felt right. Perfect, actually.
+
+Last semester, I spent a lot of time thinking about you, which doubled this semester. My mornings begin with, and I sleep thinking about you. In Coda, I cannot fully concentrate when you are around, lol. God knows how many hours I have spent listening to love songs (ranging from old hindi classics to Adele’s new one). I am emotional, and yes, I have slept cried several times during this period.
+
+I think this is not normal, and it has started to affect me. Like on Friday, I overreacted and became ultra sad for absolutely no reason, and today, after 10 minutes in CRC, I was again lost in thoughts. Himanshu was not the reason that I came early. In fact, usually, I would be the last one to leave. I just felt ashamed. And maybe I have found out why: I am not good enough. I collected so many data points for a guy who works with ML.
+
+You need someone cool. Who can go out with you on random weekends to Chicago and doesn’t care about the ticket prices, who is good at badminton, who knows driving, who knows swimming, who knows names of more than one drink, who loves donuts and hot chocolate, who loves (and knows) cousins other than Indian, and who is interesting and funny even when he’s not drunk.
+
+You are a pure, kind, loving, caring, and the most energetic, cheerful, empathetic, and intelligent girl I have come across. You deserve someone like above. I’ll not even going to ask you about me because, you know what, it doesn’t matter. I hope you’ll find someone above (or you already have someone) because that just seems correct. I am maybe experiencing this because you are the first one, ever. Never had a crush till now. I was just too shy to interact with girls in undergrad and had WFH after that :)
+
+But thank you. I mean it. You changed my life. I learned that life is more than weekly research updates and applying to a Ph.D. program. Because of you, I danced in Miami and recently started posting my little joys on Instagram. I think I even got my internship because of you, lol.
+
+Okay, that was a lot, but I couldn't hold it inside me anymore and just had to let it all out today.
+
+I already feel 10 kilos lighter, and maybe someday I’ll eventually end up finding a girl taller than me :p
+
+Mayank.  
+
